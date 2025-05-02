@@ -1,1 +1,1 @@
-# Eduaci-nPropiaLeidyBucheli
+# EduaciónPropiaLeidyBucheli
